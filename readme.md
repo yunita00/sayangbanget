@@ -1,0 +1,1 @@
+sayang banget sama kamu !
